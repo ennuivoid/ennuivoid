@@ -20,7 +20,7 @@
 
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
-### ✘ DO NOT INTERACT (DNI!) ✘
+## ✘ DO NOT INTERACT (DNI!) ✘
 
 - **DNI: criteria, racism, homophobia, proshippers etc.** **DNI with me! I REPEAT DNI!** Shoo away!
 
