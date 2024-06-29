@@ -1,3 +1,4 @@
+![1000000917](https://github.com/ennuivoid/ennuivoid/assets/171761163/b82ba057-1d52-4c0f-8aba-cb203624e205)
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
 ![1000000915](https://github.com/ennuivoid/ennuivoid/assets/171761163/2fa2c7a9-55e1-4143-b2d5-3dfe94925ad6)
@@ -18,9 +19,14 @@
   - **ᡣ𐭩** **Please** let me know if I ever say or do anything that you find inappropriate or offensive. I'm always willing to learn and improve, and I appreciate your honesty in pointing out any missteps.
     - **ᡣ𐭩** **Please** do **INT** with me! **C+H** is fine; **i would be so happy!!!** ♡
 
+![1000000917](https://github.com/ennuivoid/ennuivoid/assets/171761163/8f0bcff7-c171-4c40-8fdb-d7871bd2ce32)
+
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
 ### ✘ DO NOT INTERACT (DNI!) ✘
 - **DNI: criteria, racism, homophobia, proshippers etc.** **DNI with me! I REPEAT DNI!** Shoo away!
 
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
+
+![1000000918](https://github.com/ennuivoid/ennuivoid/assets/171761163/d604567c-4f07-485a-bcd2-144f3ce58275)
+
