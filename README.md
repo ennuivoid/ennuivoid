@@ -18,8 +18,6 @@
   - **ᡣ𐭩** **Please** let me know if I ever say or do anything that you find inappropriate or offensive. I'm always willing to learn and improve, and I appreciate your honesty in pointing out any missteps.
     - **ᡣ𐭩** **Please** do **INT** with me! **C+H** is fine; **i would be so happy!!!** ♡
 
-![1000000917](https://github.com/ennuivoid/ennuivoid/assets/171761163/8f0bcff7-c171-4c40-8fdb-d7871bd2ce32)
-
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
 ### ✘ DO NOT INTERACT (DNI!) ✘
