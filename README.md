@@ -26,10 +26,9 @@
 
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
-![1000000931](https://github.com/ennuivoid/ennuivoid/assets/171761163/7755cc68-b93c-49aa-a8b7-81d9253df577)
 > - "I'm wondering where you are tonight
 > - And I'm wondering if you are all right
 > - I wonder if you think of me in my misery
-> - There stands the glass, fill her up to the brim
+> - There stands the glass, fill it up to the brim
 > - Until my troubles grow dim, it's my first one today"
 _Updating..._
