@@ -2,6 +2,8 @@
 
 ![1000000915](https://github.com/ennuivoid/ennuivoid/assets/171761163/2fa2c7a9-55e1-4143-b2d5-3dfe94925ad6)
 
+###  𓁻 "No matter where you go, everyone's connected."  𓁻
+
 **𓁻 Hi!!! My name is _Onyx_ 𓁻**
 > - **𓁻** ~~(I change my name many times, idk if im going to replace this again)~~
   - **𓁻** I go by any pronouns, so please feel free to refer to me in whichever way you prefer.
