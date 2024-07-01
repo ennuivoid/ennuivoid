@@ -28,6 +28,8 @@
 
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
+![1000000939](https://github.com/ennuivoid/ennuivoid/assets/171761163/e0b0ae7e-30a4-42d0-b7d9-c8ca15d4b85d)
+
 > - "I'm wondering where you are tonight
 > - And I'm wondering if you are all right
 > - I wonder if you think of me in my misery
