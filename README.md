@@ -19,6 +19,7 @@
 - I may not always express myself in the best way due to **English not being my native language**.
   - **ᡣ𐭩** **Please** let me know if I ever say or do anything that you find inappropriate or offensive. I'm always willing to learn and improve, and I appreciate your honesty in pointing out any missteps.
     - **ᡣ𐭩** **Please** do **INT** with me! **C+H** is fine; **i would be so happy!!!** ♡
+     > - Whisper to interact (W2I) probably afk
 
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
