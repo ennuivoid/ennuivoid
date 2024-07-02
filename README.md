@@ -31,7 +31,7 @@
 
 ![1000000986](https://github.com/ennuivoid/ennuivoid/assets/171761163/22db1f4c-14de-4f44-bae9-f5343d8bc7a4)
 > I Love Marie ♡
-> - I love women who can actually destroy me
+> - I love women who will actually destroy me
   
 
   
