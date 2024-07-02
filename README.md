@@ -29,10 +29,11 @@
 
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
-![1000000939](https://github.com/ennuivoid/ennuivoid/assets/171761163/e0b0ae7e-30a4-42d0-b7d9-c8ca15d4b85d)
-
 ![1000000986](https://github.com/ennuivoid/ennuivoid/assets/171761163/22db1f4c-14de-4f44-bae9-f5343d8bc7a4)
-> I Love Marie ♡ 
+> I Love Marie ♡
+> I love women who can actually destroy me
+
+![1000000939](https://github.com/ennuivoid/ennuivoid/assets/171761163/e0b0ae7e-30a4-42d0-b7d9-c8ca15d4b85d)
 
 > - "I'm wondering where you are tonight
 > - And I'm wondering if you are all right
