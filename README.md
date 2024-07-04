@@ -8,6 +8,7 @@
 > - **𓁻** ~~(I change my name many times, idk if im going to replace this again)~~
   - **𓁻** I go by any pronouns, so please feel free to refer to me in whichever way you prefer.
      - **𓁻** Im mostly wandering around in different locations at pony town, joining with other fandoms to have a little chat or keep company.
+  >     - **𓁻** if you met me on my other ponies without my link, well... Congratulations!!! 
 
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
