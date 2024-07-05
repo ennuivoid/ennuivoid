@@ -30,7 +30,7 @@
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
 ![1000000986](https://github.com/ennuivoid/ennuivoid/assets/171761163/22db1f4c-14de-4f44-bae9-f5343d8bc7a4)
-> oh, marie, what a woman you are... 
+> oh, marie, the woman you are... 
 > - I love women who will actually destroy me
   
 
