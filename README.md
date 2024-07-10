@@ -41,11 +41,9 @@
 
 ![1000000939](https://github.com/ennuivoid/ennuivoid/assets/171761163/e0b0ae7e-30a4-42d0-b7d9-c8ca15d4b85d)
 
-> - "I'm wondering where you are tonight
-> - And I'm wondering if you are all right
-> - I wonder if you think of me in my misery
-> - There stands the glass, fill it up to the brim
-> - Until my troubles grow dim, it's my first one today"
+> - "I don't want to start any blasphemous rumours
+> - But I think that God's got a sick sense of humour
+> - And when I die, I expect to find him laughing"
 
 
 
