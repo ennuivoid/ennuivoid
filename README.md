@@ -26,7 +26,7 @@
 
 ## ✘ DO NOT INTERACT (DNI!) ✘
 
-- **DNI: criteria, racism, homophobia, proshippers etc. Including 13yrs old below.** **DNI with me! I REPEAT DNI!** Shoo away!
+- **DNI: criteria, racism, homophobia, proshippers etc.** **DNI with me! I REPEAT DNI!** Shoo away!
 
 ### ⋆♱⋆ཋྀ ˚₊‧⁺ ⛧°。⋆༺♱༻⋆。°⛧ .˳·˖✶𓆩𓁺𓆪✶˖·˳. ⛧°。⋆༺♱༻⋆。°⛧ ⁺‧₊˚ ཐི⋆♱⋆
 
